@@ -2,7 +2,7 @@
 
 
 
-Full-Stack Developer & Cybersec Analyst
+
 Currently in Rockstar Games – Experiment 
 
 
